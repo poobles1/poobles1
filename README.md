@@ -1,1 +1,1 @@
-![art_cred_lejung101_on_twt-removebg-preview](https://github.com/user-attachments/assets/4d45de8e-7d01-4737-b58d-d8eb1bd41fed)
+![Screenshot_from_2024-11-24_17-41-01-removebg-preview](https://github.com/user-attachments/assets/f1487e0d-30aa-4f01-b562-89ea83c4a0ba) " all im tinking abt is party!! "
