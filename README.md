@@ -1,1 +1,1 @@
-![Screenshot_from_2024-11-24_17-41-01-removebg-preview](https://github.com/user-attachments/assets/07e7fafd-336c-4fbe-b986-0433af2f732c)   " oh how i wunda wats gonna hapen tday! "
+![I_LOVE_SETH_AND_JANE_SO_MUCH_AAAAA_I_cannot_shut_up_about_them-removebg-preview](https://github.com/user-attachments/assets/8e7c55dc-2002-47b6-b19e-5a55d3786cb1)
