@@ -1,1 +1,1 @@
-![Screenshot_from_2024-11-24_17-41-01-removebg-preview](https://github.com/user-attachments/assets/f1487e0d-30aa-4f01-b562-89ea83c4a0ba) " all im tinking abt is party!! "
+![Zenless_Zone_Zero_1_-removebg-preview](https://github.com/user-attachments/assets/e375fca6-7e74-46ff-94e4-5710218ece17)
