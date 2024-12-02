@@ -1,1 +1,14 @@
-![Zenless_Zone_Zero_1_-removebg-preview](https://github.com/user-attachments/assets/e375fca6-7e74-46ff-94e4-5710218ece17)
+
+
+
+
+
+
+
+
+
+
+
+
+
+![Screenshot_from_2024-11-22_00-21-48-removebg-preview](https://github.com/user-attachments/assets/86a4e607-00e7-45c1-bd44-e5b8d6446ba0)
