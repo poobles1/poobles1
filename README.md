@@ -1,14 +1,1 @@
-
-
-
-
-
-
-
-
-
-
-
-
-
-![Screenshot_from_2024-11-22_00-21-48-removebg-preview](https://github.com/user-attachments/assets/86a4e607-00e7-45c1-bd44-e5b8d6446ba0)
+![image](https://github.com/user-attachments/assets/862dd418-fd78-426b-a8a2-a9053f79a092)
